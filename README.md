@@ -1,2 +1,2 @@
 
-官网(*)URL: https://mrblink.xyz
+官网(•)URL: https://mrblink.xyz
